@@ -86,7 +86,7 @@
      
 [![Forkers repo roster for @Keithkeizzah/ALPHA-MD](http://reporoster.com/forks/dark/Keithkeizzah/ALPHA-MD1)](https://github.com/Keithkeizzah/ALPHA-MD/network/members)
 
-Enjoy the diverse features of 𝐀𝐋𝐏𝐇𝐀-𝐌𝐃  to enhance your Whatsapp more enjoyable
+Enjoy the diverse features of kobis-𝐌𝐃  to enhance your Whatsapp more enjoyable
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
